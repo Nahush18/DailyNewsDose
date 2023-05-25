@@ -7,4 +7,7 @@
 ![Screenshot (251)](https://github.com/Nahush18/DailyNewsDose/assets/117640054/01e75112-1e4a-46f6-a688-6b2f82427a49)
 
 ![image](https://github.com/Nahush18/DailyNewsDose/assets/117640054/b88c6c89-305e-4a4c-b9ee-7c175b923272)
+
 ![Screenshot (253)](https://github.com/Nahush18/DailyNewsDose/assets/117640054/1295708d-37fc-4564-b7d2-07bb99aafc6b)
+
+
